@@ -21,3 +21,13 @@
 【05】电子书｜有声书｜珍藏书：
 
 
+影视TV盒子：
+★自带直播源apk（装了就能看，有大佬维护直播源）	https://pan.quark.cn/s/4d70a54c5414
+
+★手机端配置软件	https://pan.quark.cn/s/f753e0798b87
+
+★TV端配置软件	https://pan.quark.cn/s/acfcbb4773b7
+
+★内置源软件	https://pan.quark.cn/s/b27daba32bac
+
+★7月最新可用影视源【多仓+单线路合集】.docx	https://pan.quark.cn/s/263399e66fa8
