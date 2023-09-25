@@ -11,10 +11,14 @@
 为方便使用，也可以直接收藏如下合集链接，链接永久有效：
 
 【01】影视专区：
+https://docs.qq.com/doc/DSGd4blRUb2hBVUxo（电影）
+https://docs.qq.com/doc/DSGdQU2xaY2V5bU1Q（动漫）
+https://docs.qq.com/doc/DSEZrbVpHbElEYmlR（综艺）
 
 【02】软件专区：
+①.430款软件合集-https://docs.qq.com/doc/DSE5rSkxBeW1VV0tM
 
-【03】学习资料：
+【03】学习资料：http://51xuexi.ysepan.com/
 
 【04】无损音乐｜演唱会：
 
